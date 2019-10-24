@@ -1,6 +1,6 @@
 # outsourcing in der pharmaindustrie - die bedeutung von externen dienstleistern
 
-Nils Schaefer ist schoen
+Nils Schaefer ist schön
 
 ![p&g](01.jpg)
 
